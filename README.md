@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @CanIGoToBedNow
+- 👀 I’m interested in network- and data technology and also programing
+- 🌱 I’m currently networking essentials.
+- 📫 You can reach me via email or discord.
